@@ -1,0 +1,1 @@
+Dedicated to shifting paradigms and shining new light on a tired world through the medium of video games, the young developers of Lux Nova Studios are learning on the job while seeking to deliver high-quality, meaningful experiences. Fans of our work can expect to unravel mysteries, explore the unknown, and feel a feeling or two along the way! 
